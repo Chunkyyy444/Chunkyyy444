@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Chunkyyy444
+- 👀 I’m interested in ...Agriculture and coding
+- 🌱 I’m currently learning ... ICT
+- 💞️ I’m looking to collaborate on ...Website creation
+- 📫 How to reach me ...collinsngigi444@gmail.com
+--->
